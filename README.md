@@ -1,0 +1,1 @@
+# armaria_equipamentos
